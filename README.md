@@ -1,0 +1,89 @@
+# Knox – 50/50
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Mid-twenties, feelin' sixteen
+Couldn't keep our hands
+to ourselves
+Five minutes and you missed me
+Trippin' off of how hard we fell
+We were flyin' in the moment
+But now
+somethin' feels different
+We were floatin' in an ocean
+Now it's just heavy liftin'
+It went from me to us to
+what I swore was love
+At least a couple months ago
+Now the bed is getting cold
+It's tough, but I'm not done,
+don't wanna give it up yet
+I won't let you go
+I just gotta know
+Tell me that you want this
+Is your heart still pumpin'?
+I've been gettin' nothin'
+from you while I give a hundred
+Tell me, are you listenin'?
+Mean it when you kiss me
+I'm way more than halfway there,
+but something's missin'
+Mm, give me a little,
+meet in the middle
+Show me you're with me
+I just need fifty-fifty
+Right now,
+it'd be the right time
+If you've got more to offer
+'Cause I'm looking
+for a lifeline
+Keep our heads above water
+Feels like we're drownin' now
+We're the only people
+who can pull us out
+I don't mind lookin' like a fool
+for you
+So, baby, don't let me down,
+let me down, no
+I don't wanna cut you loose,
+I'll sink for you
+As long as you're still mine
+Just say it one more time
+Tell me that you want this
+Is your heart still pumpin'?
+I've been gettin' nothin'
+from you while I give a hundred
+Tell me, are you listenin'?
+Mean it when you kiss me
+I'm way more than halfway there,
+but something's missin'
+Mm, give me a little,
+meet in the middle
+Show me you're with me
+I just need fifty-fifty
+(I just need fifty-fifty)
+One day,
+if we make it the whole way
+We'll need more than just okay
+I need more than just halfway
+But tonight,
+all I need is your blue eyes
+Looking at me with new life
+That we're both on the same page
+Tell me that you want this
+Is your heart still pumpin'?
+I've been gettin' nothin'
+from you while I give a hundred
+Tell me, are you listenin'?
+Mean it when you kiss me
+I'm way more than halfway there,
+but something's missin'
+Mm, give me a little,
+meet in the middle
+Show me you're with me
+If we're gonna make it,
+why are you waitin'?
+Show me you're with me
+I just need fifty-fifty
+```
